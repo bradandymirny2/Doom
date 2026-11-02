@@ -219,4 +219,4 @@ This is the full free version of Doom, featuring all features and updates includ
 Don't miss out on the chance to experience the legendary shooter — **download Doom for free today!**
 
 ---
-**Last updated:** 2026-11-01 23:28:56 UTC
+**Last updated:** 2026-11-02 05:45:56 UTC
